@@ -1,6 +1,7 @@
 Hey, I am Netta 
 ***
 ![Uploading akira-yex6wAzrqN0-unsplash.jpg…]()
+![](akira-yex6wAzrqN0-unsplash.jpg)
 
 ***
 
